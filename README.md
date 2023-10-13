@@ -1,2 +1,2 @@
-# el-que-quieres-pendejo
-aaaaah
+# NFT WEY!
+THIS IS A APP LIKE TINDER TO BUY NFTS, MORE EASY WITH SOLANA
